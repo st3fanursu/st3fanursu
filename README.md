@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @st3fanursu
-- 👀 I’m interested in football, econo and data
+- 👀 I’m interested in football, economy and data
 - 🌱 I’m currently learning about in-depth economics and data analysis
 - 📫 How to reach me stefan.wrsw@gmail.com or www.linkedin.com/in/st3fanursu
 - 😄 Pronouns: he/him
